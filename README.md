@@ -19,5 +19,6 @@ The original research aim was to collect all digital archives related to ninetee
 The researchers are white female-identifying Western academics that are aware that they must situate their privileged position in their scholarship and that they cannot presume to know the site of the archival experience from the position of the oppressed. The research group wish to explore the nuances of digitising and archival history and in doing so acknowledge the work of countless indigenous, subjugated people on whose backs such archives are made. The research group aim to embody within their research an intersectional feminist approach to understand the critical make-up of that which is encountered. Marginalised Marys aims to facilitate a critical nuanced engagement with the process and creation of digital databases, archives, and collections, because they are increasingly becoming a primary investigation tool for professional and public stakeholders alike and thus hold a relatively unacknowledged significance for research and funding.
 
 ![qjmoyqH1](https://github.com/user-attachments/assets/51ac089d-d187-40a9-ad77-9e43b51be9a3)
+
 <sub>DeepAI generated image, prompt text-three marginalised marys, style-photo realist, generated-2025.01.10. Image shows three female faces close up, the left and right faces are in profile.</sub> 
 
